@@ -1,2 +1,2 @@
 # H-K-Webauftritte
-Wir verkaufen Websites für Ihren Laden/Ship
+Wir verkaufen Websites für Ihren Laden/Shop
